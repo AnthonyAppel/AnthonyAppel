@@ -1,3 +1,3 @@
 ## oi 👋
 
-⭐ Só passando aqui para mostrar meus projetos
+⭐ Só passando aqui para mostrar meus projetos...
